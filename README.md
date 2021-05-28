@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kaho1910
-- 👀 I’m interested in anything to improve my codinh
+- 👀 I’m interested in anything to improve my coding
 - 🌱 I’m currently learning for Bachelor of Science Program in Information Technology
 - 📫 You can reach me by this e-mail  --> thirawee.tawan@gmail.com <--
 
